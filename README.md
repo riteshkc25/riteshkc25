@@ -6,7 +6,7 @@
 - 💞️ I am always open to learning more and collaborating on interesting projects that involve data analysis and data science. 
 - 📫 Feel free to reach out or explore some of the work I’ve shared here. Let’s build something together!
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Love to be outdoors
+- ⚡ Fun fact: Love to be in outdoors
   
 ---
 
